@@ -1,4 +1,4 @@
-# diplomska-magistrska.si
+# 123seminarska.si
 Pomoč pri diplomski ali magistrski nalogi. Hitro, zanesljivo, anonimno in brez uporabe AI. Kontaktirajte danes.
 
 Storitev pomoči pri pisanju diplomskega, magistrskega ali seminarskega dela v Sloveniji. Storitev temelji na več kot 7 letih izkušenj in 105+ uspešnih diplomantih ter magistrih. Zagotavljam hitro, zanesljivo, anonimno pomoč ter diskretnost brez uporabe AI orodij.
