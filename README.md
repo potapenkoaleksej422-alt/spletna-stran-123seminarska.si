@@ -33,4 +33,4 @@ Diskretno vodenje in mentorstvo iz ozadja vseh faz – od izbire zmagovalne teme
 
 ## Avtor
 
-Avtor tega repozitorija je spletna stran https://diplomska-magistrska.si
+Avtor tega repozitorija je spletna stran https://123seminarska.si
